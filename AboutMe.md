@@ -15,4 +15,4 @@ I am looking to transition from a military centered environment to one that is c
 
 </li>
 </ul>
-If your interested in learning more, please contact me via <strong>yoaddehi@gmail.com</strong> .
+If your interested in learning more, please contact me via <strong>yoaddehi@gmail.com</strong>.
