@@ -12,7 +12,7 @@ My life motto is
 
 > If someone tells me no, I am asking the wrong person. -Unknown
 
-I am a Georgia native and love. What I _love_ must about Georgia is:
+I am a Georgia native and love it. What I _love_ about Georgia is:
 
 - Climate
 - Diverse communities
